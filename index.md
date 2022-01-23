@@ -1,3 +1,3 @@
 hi everyone!
 
-[Week 3 video(SNAP program):](https://youtu.be/33fsgzcOeTw)
+[Week 3 video(SNAP program):](https://youtu.be/vuJWJt1T3Xk)
