@@ -7,3 +7,7 @@ hi everyone!
 
 
 [Week 4 video(shapes)](https://youtu.be/VUVrSVeqdOw)
+
+[Week 4 video(soccer)](https://youtu.be/NUIgt2dq3-g)
+
+
