@@ -11,3 +11,5 @@ hi everyone!
 [Week 4 video(soccer)](https://youtu.be/NUIgt2dq3-g)
 
 
+
+[Week 6 video(target)](https://youtu.be/2HBqK1BHoRo)
