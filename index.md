@@ -11,5 +11,5 @@ hi everyone!
 [Week 6 video(target)](https://youtu.be/2HBqK1BHoRo)
 
 
-[Week 6 video(penguin)](https://youtu.be/hA3n1bF8y5E)
+[Week 7 video(penguin)](https://youtu.be/hA3n1bF8y5E)
 
