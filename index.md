@@ -13,3 +13,4 @@ hi everyone!
 
 [Week 7 video(penguin)](https://youtu.be/hA3n1bF8y5E)
 
+[Week 8 video(treasure](https://youtu.be/tz8p_RwpBYs)
