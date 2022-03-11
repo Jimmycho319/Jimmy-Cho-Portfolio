@@ -16,3 +16,5 @@ hi everyone!
 [Week 8 video(treasure](https://youtu.be/tz8p_RwpBYs)
 
 [Week 9 video(paint)](https://youtu.be/ym4tCK115Cw)
+
+[Week 10 video(map)](https://youtu.be/ccGgxLhrVi4)
